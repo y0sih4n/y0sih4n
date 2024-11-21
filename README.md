@@ -1,5 +1,0 @@
-- 👋 Hi, I’m @y0sih4n
-- 👀 I’m interested in ... reading, writing literature, watching shows, games
-- 🌱 I’m currently learning ... how to program, a total beginner
-- 📫 How to reach me ... ig: @rredskirts
-- 😄 Pronouns: ... she/her
